@@ -19,5 +19,5 @@
 ---
 
 ### 📫 تواصل معي (Connect with Me)
-* **LinkedIn:** [حطي رابط حسابك على لينكد إن هنا](https://linkedin.com)
-* **Email:** marian.adel@example.com
+
+* **Email:** nana.adel724@gmail.com
